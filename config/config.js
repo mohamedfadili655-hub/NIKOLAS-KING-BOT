@@ -3,7 +3,6 @@
 👑 NIKOLAS KING BOT 👑
 
 Developer : NIKOLAS
-
 Owner : +212629546024
 
 Official Channel:
